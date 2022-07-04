@@ -1,10 +1,11 @@
-- 👋 Hi, I’m @Eddathew
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-Eddathew/Eddathew is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+hey bozos
+im a minor!!
+DID system!
+im a therian lmao
+ur gay
+just looking for friends
+genshin fans DNI
+;; 🍓
+women>>>
+ur gay <3
+meow![c0420a840d7882497999bb48fa6dcf55](https://user-images.githubusercontent.com/108656301/177105416-77d61dcf-55e2-4ab0-8e31-5b2a511bd26d.jpg)
